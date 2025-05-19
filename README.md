@@ -1,4 +1,13 @@
-# NanoScienceSummerReferences
+Puedes apoyarme participando en mi rifa solidaria en el siguiente link! Dentro del forms encontraras mas información
+
+https://forms.gle/zza4cnFqtv3SYGmU6
+
+Además, estoy realizando un crowdfunding para captar fondos donde cuento a mas detalle mi historia en el siguiente link!
+
+https://gofund.me/75e5631d
+
+
+# NanoScienceSummerReferences  # NANOPHYS REFERENCES
 
 [1] Ceccatto, A., Freiberger, E. M., Waleska-Wellnhofer, N. J., Jaekel, S., Mowbray, D. J., Papp, C., ... & de Siervo, A. (2024). Engineering large nanoporous networks with size and shape selected by appropriate precursors. Carbon, 118945.
 
