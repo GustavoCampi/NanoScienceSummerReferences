@@ -6,6 +6,11 @@ Además, estoy realizando un crowdfunding para captar fondos donde cuento a mas 
 
 https://gofund.me/75e5631d
 
+Si te interesa apoyar esta causa sin participar en la rifa puedes hacerlo mediante las siguientes cuentas a nombre de Gustavo Campi
+
+Banco Pichincha 👉 2203560371
+Banco Pacifico 👉 1069652357
+Cedula 0928346212
 
 # NanoScienceSummerReferences  # NANOPHYS REFERENCES
 
